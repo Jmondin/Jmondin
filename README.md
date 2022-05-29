@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jmondin Julio Mondin
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning programming to became an developer
+- 💞️ I’m looking to collaborate on my best way possible with everybody
+- 📫 How to reach me, my linked in is https://www.linkedin.com/in/julio-mondin-23922a1/
